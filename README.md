@@ -57,4 +57,4 @@ Feel free to reach out or contribute to this project.
 
 ---
 
-**Created with ❤️ by [Your Name] and AI**  
+**Created with ❤️ by Rahul and AI**  
